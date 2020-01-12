@@ -1,1 +1,4 @@
 # LDDcode
+
+LDD there!
+Chinese!
