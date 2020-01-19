@@ -1,4 +1,3 @@
 # LDDcode
-
-LDD there!
-Chinese!
+I can't stop.
+The man on road, the worl in heart.
